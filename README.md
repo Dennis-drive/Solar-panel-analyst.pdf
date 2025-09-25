@@ -1,0 +1,1 @@
+To help guide you through potential purchase of solar panels for your house. Included are the tax benefits , the best installers, and the best equipment . It is built from what knowledge was available when I created this. I make promises of accuracy or guarantee use at your own risk It is focused on North Carolina's tax benefits.
